@@ -3,7 +3,7 @@ Fuck Math.sqrt - because i hate this shit yoo
 
 Shit s
 
-sihfjaijgajkgdhkhkkgh
+sihfjaijgaj
 
 
 
