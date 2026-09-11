@@ -10,4 +10,4 @@ sihfjaijgaj
 
 gggg
 g
-то версия из branch-a
+это версия из branch-a
